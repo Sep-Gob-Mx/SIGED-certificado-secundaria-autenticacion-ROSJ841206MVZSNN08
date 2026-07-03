@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-ROSJ841206MVZSNN08
+ROSJ841206MVZSNN08
